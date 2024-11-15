@@ -1,4 +1,4 @@
 Welcome to my Network Github.
 This Space is my studying space
-That's files must open Microsoft Onenote for Windowns
+Please download the file before opening it with Onenote for Windows
 Thank you for Visting my Network Studying Space
